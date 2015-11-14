@@ -1,0 +1,4 @@
+- Kahthrin Weihe
+- from Hamburg
+- favorite food: Kimchi
+- hobby: kayaking
